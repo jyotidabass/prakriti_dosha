@@ -1,0 +1,1 @@
+# prakriti_dosha
